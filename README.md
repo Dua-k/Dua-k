@@ -2,7 +2,7 @@
 - 👀 I’m interested in SEO LINK BUILDING
 - 🌱 I’m currently doing as SEO EXPERT
 - 💞️ I’m looking to collaboration, whom interested
-- 📫 How to reach me ...
+- 📫 reach me duakashaf12345@gmail.com
 
 <!---
 Dua-k/Dua-k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
